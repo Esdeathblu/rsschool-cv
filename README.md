@@ -1,1 +1,1 @@
-https://Esdeathblu.github.io/rsschool-cv/
+https://Esdeathblu.github.io/rsschool-cv/cv
